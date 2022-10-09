@@ -7,3 +7,4 @@
 ### L'impegno per un buon servizio
 ### Apontar para um bom serviço
 ### El objetivo de un buen servicio
+![msy・pw](https://user-images.githubusercontent.com/115390462/194743734-8558895a-33a5-478c-9c75-9e8bfa00578d.png)
